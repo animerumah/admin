@@ -1,2 +1,0 @@
-# admin
-Rumah Anime
